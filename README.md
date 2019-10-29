@@ -16,3 +16,7 @@ This is a meme board made to teach people git
 
 ![J'aime le meme](images/z00merm3m3.jpg)
 
+
+
+
+# GO CRAZY BELOW!!!!! 
